@@ -33,10 +33,10 @@ https://inlineskate-aggressive-rolling.blogspot.com
 https://inlineskate-artistic-roller-skating.blogspot.com
 https://inlineskate-skating-jumps.blogspot.com
 https://inlineskate-roller-hockey.blogspot.com
-httpa://Inlineskate-basic.blogspot.com
+https://Inlineskate-basic.blogspot.com
 https://inlineskate-urban-rolling.blogspot.com/
 https://inlineskate-forkids.blogspot.com/
-httpa://Inlineskate-roller-skating-school.blogspot.com
+https://Inlineskate-roller-skating-school.blogspot.com
 https://inlineskate-happy.blogspot.com/
 https://inlineskate-hardware.blogspot.com
 https://inlineskate-shop.blogspot.com
